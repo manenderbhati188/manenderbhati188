@@ -1,3 +1,4 @@
+![logo](https://user-images.githubusercontent.com/92909979/244960433-097bfb9e-3310-4655-aa0a-2a431b3b38d0.jpg)
 <h1 align="center">Hi 👋, I'm Manender Bhati</h1>
 <h3 align="center">A passionate developer Engineer </h3>
 <img align="right"alt="coding-img" width="400" src="https://miro.medium.com/max/1600/0*C-cPP9D2MIyeexAT.gif"
