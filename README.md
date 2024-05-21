@@ -9,7 +9,7 @@
 
 - 📫 You reach me by **manenderbhati188@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1lbaGE_djr1JcgtrfZEXMobNq7m3Uj-Db/view?usp=sharing](https://drive.google.com/file/d/1lbaGE_djr1JcgtrfZEXMobNq7m3Uj-Db/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1clGYz4__UeCvx1LzfYbjpkLNIR4Bxlrw/view?usp=drive_link](https://drive.google.com/file/d/1clGYz4__UeCvx1LzfYbjpkLNIR4Bxlrw/view?usp=drive_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
